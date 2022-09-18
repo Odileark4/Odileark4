@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @Odileark4
+- 👀 I’m interested in Event management, PR, Singing, Guitar & Piano.
+- 🌱 I’m currently learning CSE
+- 💞️ I’m looking to collaborate on Space Projects
+- 📫 How to reach me: 
+- Gmail-> harshit.kh2@gmail.com 
+- LinkedIn->https://www.linkedin.com/in/kumar-harshit-26036b233
+- Insta-> @harshit.kh2
+- !--- Never see me in the eyes👀
+Odileark4/Odileark4 is a ✨ special ✨ repository because its contains his knowledge and works.
+---!
